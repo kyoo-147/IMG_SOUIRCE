@@ -1,2 +1,10 @@
 # IMG_SOUIRCE
 ![2_2](https://github.com/user-attachments/assets/d3a9c718-3874-4a2f-a667-21e532348754)
+![1045273125_0_458_2048_1610_1920x0_80_0_0_10dcc260b67418892f781fc965e0a5c7](https://github.com/user-attachments/assets/5c87c2ef-d88e-4396-8552-b88e8a8485af)
+![warren-powell-warrenpowell-turbine3](https://github.com/user-attachments/assets/79184e32-31df-4e35-ad62-50f1bbf40be2)
+![ai-generated-futuristic-central-processor-unit-powerful-quantum-cpu-motherboard-ai-generated-free-photo](https://github.com/user-attachments/assets/32e04476-94f8-4e86-99e4-6d12251c16f4)
+![7f5895ed17c6ac63f608968cebbe7e79](https://github.com/user-attachments/assets/e577ef6d-31d0-4e15-8886-f2656167cbea)
+![ba4a2dd2cac2988b1110b593f4cbfca3](https://github.com/user-attachments/assets/96e2358b-ec7c-4a9b-930d-550a672c7860)
+![Anduril-Ghost-4-1068x601](https://github.com/user-attachments/assets/30991674-e702-480c-ac5a-02bc36021793)
+![fda2418585f0b9dc5d4f4255b6265a49](https://github.com/user-attachments/assets/9d126597-ed8f-408a-8822-ae6e2c2b41b4)
+![cb4fd55fc601aa91e21d688157c65a31](https://github.com/user-attachments/assets/14ceb4f0-9b9e-4d79-ae99-b9fce9544a01)
